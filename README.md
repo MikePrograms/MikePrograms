@@ -6,7 +6,7 @@
 - Onboarding new clients with technology goals to achieve.
 
 📫 Reach Me
-- [Email (Mike@MikePrograms.com)](mike@mikeprograms.com)
+- [Email (Mike@MikePrograms.com)](mailto:mike@mikeprograms.com)
 - [Instagram (@MikePrograms)](https://instagram.com/mikeprograms)
 - [YouTube (@MikePrograms)](https://youtube.com/@mikeprograms)
 - [TikTok (@MikePrograms)](https://tiktok.com/@mikeprograms)
