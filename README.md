@@ -7,8 +7,8 @@
 
 📫 Reach Me
 - [Email (Mike@MikePrograms.com)](mailto:mike@mikeprograms.com)
+- [LinkedIn (@MikePrograms)](https://linkedin.com/in/mikeprograms)
 - [Instagram (@MikePrograms)](https://instagram.com/mikeprograms)
 - [YouTube (@MikePrograms)](https://youtube.com/@mikeprograms)
 - [TikTok (@MikePrograms)](https://tiktok.com/@mikeprograms)
-- [LinkedIn (@MikePrograms)](https://linkedin.com/in/mikeprograms)
 - [Snapchat (@MikePrograms)](https://www.snapchat.com/add/mikeprograms)
