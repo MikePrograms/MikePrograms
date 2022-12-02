@@ -6,5 +6,5 @@
 - Onboarding new clients with technology goals to achieve.
 
 📫 Reach Me
-- Mike@MikePrograms.com -> iMessage, email
-- @MikePrograms -> Instagram, TikTok, YouTube
+- Mike@MikePrograms.com -> Email
+- @MikePrograms -> Instagram, TikTok, YouTube, Snapchat
