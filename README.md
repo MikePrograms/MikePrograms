@@ -6,7 +6,7 @@
 - Onboarding new clients with technology goals to achieve.
 
 📫 Reach Me
-- [Email (Mike@MikePrograms.com)](mailto:mike@mikeprograms.com)
+- [Email (Main@EXPTotal.com)](mailto:main@EXPTotal.com)
 - [LinkedIn (@MikePrograms)](https://linkedin.com/in/mikeprograms)
 
 📸 Social Medias
