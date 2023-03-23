@@ -10,4 +10,3 @@
 - [Instagram (@MikePrograms)](https://instagram.com/mikeprograms)
 - [YouTube (@MikePrograms)](https://youtube.com/@mikeprograms)
 - [TikTok (@MikePrograms)](https://tiktok.com/@mikeprograms)
-- [Snapchat (@MikePrograms)](https://www.snapchat.com/add/mikeprograms)
