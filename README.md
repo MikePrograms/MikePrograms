@@ -1,7 +1,6 @@
 👋 Hi, I’m Mike.
-- Software Engineer @ 3lbXR
 - "Full-stack" software and hardware developer. You dream it, I make it.
-- Specialization in automations, bots, applications, and websites.
+- Specialization in AI, automations, bots, applications, and robotics.
 
 📫 Reach Me
 - [Email (Main@EXPTotal.com)](mailto:main@EXPTotal.com)
